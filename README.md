@@ -7,4 +7,3 @@
 📫 How to reach me prasadsommireedy2002@gmail.com
 😄 Pronouns: Mr
 🐱‍💻 Working at: Machint solutions pvt ltd (Hyderabad) INDIA
-👀 Role:
